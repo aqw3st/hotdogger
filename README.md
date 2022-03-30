@@ -1,1 +1,1 @@
-![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcommons.wikimedia.org%2Fwiki%2FFile%3AHot_dog_with_mustard.png&psig=AOvVaw1OucLeRV_NhfNlsuO34asK&ust=1648717393917000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCICzs4e97fYCFQAAAAAdAAAAABAN)
+![alt text](https://static4.depositphotos.com/1012760/296/i/600/depositphotos_2966040-stock-photo-hot-dog.jpg)
